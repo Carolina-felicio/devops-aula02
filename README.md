@@ -1,4 +1,4 @@
-Rihanna
-Uza Uduba
-Natalie Portman
-SZA
+Rihanna  
+Uza Uduba  
+Natalie Portman  
+SZA  
