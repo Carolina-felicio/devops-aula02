@@ -1,3 +1,4 @@
-Rihanna
-Scarlett Johansson
-Natalie Portman
+Rihanna  
+Scarlett Johansson  
+Natalie Portman  
+SZA
