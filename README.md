@@ -1,1 +1,3 @@
-# devops-aula02
+Rihanna
+Scarlett Johansson
+Natalie Portman
