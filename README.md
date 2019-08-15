@@ -1,3 +1,4 @@
 Rihanna
-Scarlett Johansson
+Uza Uduba
 Natalie Portman
+SZA
